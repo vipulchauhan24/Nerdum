@@ -1,0 +1,2 @@
+# Nerdum
+Forum for nerd
